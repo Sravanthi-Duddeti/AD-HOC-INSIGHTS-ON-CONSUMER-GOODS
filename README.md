@@ -1,4 +1,4 @@
-# AD-HOC-INSIGHTS-ON-CONSUMER-GOODS![AD-HOC INSIGHTS ON CONSUMER GOODS](https://github.com/user-attachments/assets/4de6e5ea-e0d5-4cbd-8960-6eb7ba129459)<BR>
+# AD-HOC-INSIGHTS ON CONSUMER-GOODS![AD-HOC INSIGHTS ON CONSUMER GOODS](https://github.com/user-attachments/assets/4de6e5ea-e0d5-4cbd-8960-6eb7ba129459)<BR>
 # **About Atliq Hardware**<BR>
 ### Atliq Hardware is a premier computer hardware producer based in India with a strong market presence across 27 countries in the APAC, EU, LATAM, and NA regions. The company boasts a diverse portfolio of 73 unique products categorized under three main divisions:<BR>
 
