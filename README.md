@@ -1,6 +1,7 @@
 # AD-HOC-INSIGHTS ON CONSUMER-GOODS![AD-HOC INSIGHTS ON CONSUMER GOODS](https://github.com/user-attachments/assets/4de6e5ea-e0d5-4cbd-8960-6eb7ba129459)<BR>
+[Final Presentation](https://www.canva.com/design/DAGLscYzEww/sw9a7vmjpbhaVVMn2okrCw/watch?utm_content=DAGLscYzEww&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel)
 # **About Atliq Hardware**<BR>
-https://www.canva.com/design/DAGLscYzEww/sw9a7vmjpbhaVVMn2okrCw/watch?utm_content=DAGLscYzEww&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel
+
 ### Atliq Hardware is a premier computer hardware producer based in India with a strong market presence across 27 countries in the APAC, EU, LATAM, and NA regions. The company boasts a diverse portfolio of 73 unique products categorized under three main divisions:<BR>
 
 ## **Networking & Storage (N&S)**
